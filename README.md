@@ -4,5 +4,9 @@
 
 ## Ejecutar el comando:
 
-hola amigos como están :v
+hola amigos como estï¿½n :v
+
+Hola WE 
+
+PTM
 
